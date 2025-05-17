@@ -1,1 +1,0 @@
-# dirko.github.io
